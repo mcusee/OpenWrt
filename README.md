@@ -5,5 +5,5 @@
 下载讨论组：  
            #群组：https://t.me/studioscn  
            #恩山：https://www.right.com.cn/forum/forum.php?mod=viewthread&tid=8258379&page=1#pid17624706  
-           #阿里：  
+           #阿里：https://cowtransfer.com/s/3a3c08b4193d44  输入传输口令 ozieqo 查看  
   
