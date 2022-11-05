@@ -5,7 +5,7 @@
 #加入讨论组获得更好体验交流# https://t.me/studioscn  
 下载讨论组：
 
-##群组：https://t.me/studioscn  （最新版更新下载）
+##群组：https://t.me/studioscn  （最新版更新下载）  
 ##恩山：https://www.right.com.cn/forum/forum.php?mod=viewthread&tid=8258379&page=1#pid17624706  
 ##奶油：https://cowtransfer.com/s/944088e9f7b84e 传输口令 fs2svc 查看 （旧版）  
 ##云盘：https://www.123pan.com/s/8Jc0Vv-ny4r提取码:8899 （最新版更新下载）
