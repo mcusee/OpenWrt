@@ -7,5 +7,4 @@
            #恩山：https://www.right.com.cn/forum/forum.php?mod=viewthread&tid=8258379&page=1#pid17624706  
            #奶油：https://cowtransfer.com/s/944088e9f7b84e 传输口令 fs2svc 查看  
   
-![Image text](https://github.com/mcusee/OpenWrt/blob/main/IMG_1434%202.JPG)
-![Image text](https://github.com/mcusee/OpenWrt/blob/main/%E6%88%AA%E5%B1%8F2022-11-04%2023.05.07.png)
+![Image text](https://github.com/mcusee/OpenWrt/blob/main/img/IMG_1434%202.JPG)
