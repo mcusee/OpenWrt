@@ -4,8 +4,8 @@
 ------------------------------------------------------
 #加入讨论组获得更好体验交流# https://t.me/+6lVxjVM3ttVmMWM1  
 
-下载讨论组：
-BUG反馈：https://t.me/+6lVxjVM3ttVmMWM1
+下载讨论组：  
+BUG反馈：https://t.me/+6lVxjVM3ttVmMWM1  
 ##群组：https://t.me/+6lVxjVM3ttVmMWM1  （最新版更新下载）  
 ##恩山：https://www.right.com.cn/forum/forum.php?mod=viewthread&tid=8258379&page=1#pid17624706  
 ##奶油：https://cowtransfer.com/s/944088e9f7b84e 传输口令 fs2svc 查看 （旧版）  
